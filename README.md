@@ -1,1 +1,1 @@
-# Zuka-Straps-LOGO-files
+# Pavyzdys
